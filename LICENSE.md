@@ -1,4 +1,4 @@
-# 
+# instant MathType for PC | MathType for Windows Automation | matrix-operations + interactive-notebooks is the best MathType for PC | MathType for Windows automation, featuring
 
 
 
